@@ -1,5 +1,5 @@
 # 💫 About Me:
-📖Second Year College Student<br>💻Studying Application of Information Technologies<br>👨‍💻Computer Science and Programming<br>💼Over 5 Years Coding Experience<br>
+📖Third Year College Student<br>💻Studying Application of Information Technologies<br>👨‍💻Computer Science and Programming<br>💼Over 5 Years Coding Experience<br>
 
 
 ## 🌐 Socials:
